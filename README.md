@@ -1,1 +1,1 @@
-Skills in C# & Lua
+Skills in... im not for hire ciddy boi
